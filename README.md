@@ -92,4 +92,4 @@ Updates will be posted at this same URL.
 
 ## Contact
 
-For questions about this policy, contact: kingspeedx11@gmail.com
+For questions about this policy, contact: abdullahbusinessme@gmail.com
